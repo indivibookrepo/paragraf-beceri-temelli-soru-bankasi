@@ -1,0 +1,1 @@
+# paragraf-beceri-temelli-soru-bankasi
